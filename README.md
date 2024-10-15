@@ -1,1 +1,1 @@
-🔰HI,I just start using Github.
+🔰HI,I just started using Github.
